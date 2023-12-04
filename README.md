@@ -1,4 +1,6 @@
 ![Freelance Copywriter](https://github.com/veroa8/Veroa8/assets/138082640/4bc1aac8-ded2-4ef5-af27-a9cec4760572)
+![gg](https://github.com/veroa8/Veroa8/assets/138082640/4ab0cbe6-2069-4726-bbc4-3c9b35cad043)
+
 
                                                 Hi👋 I am Verónica Tangarife Agudelo
 
