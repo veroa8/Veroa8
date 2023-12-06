@@ -1,8 +1,8 @@
 ![Freelance Copywriter](https://github.com/veroa8/Veroa8/assets/138082640/4bc1aac8-ded2-4ef5-af27-a9cec4760572)
 
-                                                Hi👋 I am Verónica Tangarife Agudelo
+                                            Hi👋 I am Verónica Tangarife Agudelo
 
-                                                   Colombian Front-end Developer
+                                               Colombian Front-end Developer
                                                   
 
 Sobre mí 👀:
